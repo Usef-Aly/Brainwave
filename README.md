@@ -1,1 +1,1 @@
-![Brainwave Preview](https://github.com/Usef-Aly/Brainwave/assets/152383333/9e4e663d-236a-4076-a6e7-9727cbd89d95)
+![Brainwave-Preview](https://github.com/Usef-Aly/Brainwave/assets/152383333/89c65925-e001-4a54-aecd-d8490b82be26)
